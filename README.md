@@ -1,2 +1,2 @@
 # Ayuveda
-online clinic and contact
+online clinic and contact to contact for any disease 
